@@ -1,0 +1,1 @@
+all you can read about stroke in indonesian langguage
